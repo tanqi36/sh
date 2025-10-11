@@ -1,2 +1,3 @@
-# sh
-shine.gg is the BEST executor out right now. Its Fully Undetected &amp; is 100% UNC and 99% sUNC.
+# Volcano.wtf
+Volcano.wtf is one of the best undetected executors! 
+While downloading it, Please extract the file.
